@@ -2,6 +2,8 @@
 
 Čia kuriama naujoji Lietuvos Respublikos Konstitucija.
 
+Kiekvienas yra kviečiamas prisidėti prie jos kūrimo!
+
 &nbsp;
 
 ## Apie Projektą
